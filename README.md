@@ -1,3 +1,0 @@
-# SM
-NEWBIE
-mohon bantuannya
